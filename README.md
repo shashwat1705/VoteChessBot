@@ -9,4 +9,4 @@
  
 https://lichess.org/@/Soumilmitra
 or
-https://lichess.org/@/Shashwat1205
+https://lichess.org/@/ShashwatCan
